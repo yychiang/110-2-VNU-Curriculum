@@ -1,1 +1,1 @@
-# 110-2-VNU-Curriculum-
+# 110-2-VNU-Curriculum
